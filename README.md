@@ -1,0 +1,5 @@
+- I’m @DeadflowersV
+- I’m currently learning GameMaker 
+- I’m looking to collaborate on any beginner friendly game dev project 
+- How to reach me ...
+- Pronouns: she/her
